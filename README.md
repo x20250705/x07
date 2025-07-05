@@ -14,6 +14,6 @@
 此外，智能推荐系统根据观众的观看历史推送相关影片，让用户轻松发现更多感兴趣的内容。同时，平台注重用户隐私保护，采用加密技术保障安全观看。
 总的来说，日本AV免费平台凭借其简便的操作、高质量的视频资源以及安全的观看环境，成为了理想的观影选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x07 ）</span>
 
 
